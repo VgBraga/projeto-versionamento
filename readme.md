@@ -2,3 +2,4 @@
 ## Um livro de: v. g. Braga
 
 viajei, fui para Maresias, me diverti muito na praia. Ao voltar da praia tive uma crise dos 18 anos e decidi que tinha que ser alguem na vida, decidi que ia estudar (pelo menos tentar), passei a tentar ler livros, consegui terminar de ler um de contos do Edgar Alan Poe, muito boa a estetica gotica, vi muitos animes, morceguei mais do que estudei e acabei por perceber que eu não levo muito jeito pra coisa, mas continuei tentando até o momento atual. Ao final eu gostei muito de tudo, criei novos habítos e percebi o quão vagabundo eu era e o quão eu ainda sou no momento, com certeza devo melhorar.
+Por fim tudo foi muito bom
